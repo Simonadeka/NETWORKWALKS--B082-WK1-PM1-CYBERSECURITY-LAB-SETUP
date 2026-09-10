@@ -308,7 +308,7 @@ This laboratory is intended strictly for education purposes only.
 **Simon Friday Adeka**\
 Cybersecurity Professional B082
 
-LinkedIn: [https://www.linkedin.com/in/waqaskarim/](https://www.linkedin.com/in/simon-adeka/)/)
+LinkedIn: [https://www.linkedin.com/in/simon-adeka/)/)
 
 ---
 
